@@ -16,3 +16,5 @@ As I always say:
 >never sailed calm seas.
 
 This can be shown through my accomplishments and achievements throughout my journey of life. 
+
+I plan on becoming a soccer superstar InshAllah and become a multi millionaire/billionaire. 
